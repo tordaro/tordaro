@@ -11,6 +11,6 @@
 Web development and in-depth machine learning 💻
 ## 💞️ I’m looking to collaborate on
 Any of my interests 😄
-## 📫 Reach med at 
+## 📫 Reach me at 
 tordaro@gmail.com
 
